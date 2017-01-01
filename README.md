@@ -1,2 +1,2 @@
 # DailyDairy
-Coming Soon
+Coming Soon...
